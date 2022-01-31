@@ -1,1 +1,1 @@
-My personal portfolio containing most of my projects 
+Aaron Li Portfolio Containing Work Experiences, Projects, Resume
